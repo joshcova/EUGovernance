@@ -1,6 +1,6 @@
 **The Internal and External Dimensions of EU Governance**
 
-Slides for the self-designed course given to BA PPE students at the University of Düsseldorf (Sommer Semester, 2025). The course was co-taught with Luuk Schmitz (https://luukschmitz.com/).  
+Slides for the self-designed course given to BA PPE students at the University of Düsseldorf (Summer Semester, 2025). The course was co-taught with Luuk Schmitz (https://luukschmitz.com/).  
 
 Feel free to share and re-use!
 
